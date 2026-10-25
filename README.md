@@ -1,2 +1,3 @@
-<img width="900" height="600" alt="me an stolas aww" src="https://github.com/user-attachments/assets/b5d62ce4-c6f8-49af-840a-b63665c69103" />
+<img width="498" height="281" alt="im soo hot right vassago gif" src="https://github.com/user-attachments/assets/d143d1b9-28c8-4c97-b988-4499e64a900b" />
+
 
