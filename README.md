@@ -33,5 +33,8 @@
 αℓωαуѕ ιηтєяα¢т ωιтн ¢αυтιση αη∂ ¢αяє.
 
 
+<img width="498" height="281" alt="heh aura me vassago snap finger aw" src="https://github.com/user-attachments/assets/587de234-f0dc-48e5-8c8a-2a994b60f9ce" />
+
+
 ℓσσкιηg ƒσя му ѕтσℓαѕ! ѕтσℓαѕ кιηѕ/ƒι¢ткιηѕ/ƒι¢тινєѕ ρℓєαѕє ιηтєяα¢т!
 
