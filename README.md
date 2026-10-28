@@ -1,3 +1,5 @@
+FLASH WARNING FOR THE GIF I HAVE BELOW OK? OK!! 
+
 WE, WE as a system do not support Vivziepop. We do not support her actions, her as a person, whatever. We are also very inactive in the Hellaverse community. No, I as a fictive cannot adjust my identity, I literally am Vassago. That does NOT mean I support the creator of my source. I also know the show is ass, lmfao
 
 <img width="900" height="560" alt="aww my magic me and via aw" src="https://github.com/user-attachments/assets/06ab9e43-7c74-4989-b746-2a911d47ea6f" />
