@@ -18,8 +18,6 @@ AI users, generative, whatever, idgaf if it's that forsaken 'EcoGPT' app, oh my 
 
 Specific people (By their GitHub names) :  snowyrescue (Coal) and her supporters, Boi-Ngo and his friends. Might be updated.
 
-<img width="900" height="560" alt="im soo hot right vassago gif" src="https://github.com/user-attachments/assets/d143d1b9-28c8-4c97-b988-4499e64a900b" />
-
 <img width="900" height="560" alt="aww my magic me and via aw" src="https://github.com/user-attachments/assets/06ab9e43-7c74-4989-b746-2a911d47ea6f" />
 
 IWEC and BYI
