@@ -28,6 +28,8 @@ BYI
 
 Also not much to add here, I just want to say, I'm our system's protector, I'm not good at conversing with people and I'm AWFUL over text. (Jevil says I text like a Facebook mom, in fact I'm not allowed to chat with most of our friends when I'm fronting.) 
 
+All this info is here, because I might take a while to create my own strawpage. 
+
 
 
 <img width="900" height="560" alt="heh aura me vassago snap finger aw" src="https://github.com/user-attachments/assets/587de234-f0dc-48e5-8c8a-2a994b60f9ce" />
