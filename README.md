@@ -1,8 +1,8 @@
+FLASH WARNING FOR THE GIF UNDER MY DNI! PROCEED WITH CAUTION PLEASE
+
 WE, WE as a system do not support Vivziepop. We do not support her actions, her as a person, whatever. We are also very inactive in the Hellaverse community. No, I as a fictive cannot adjust my identity, I literally am Vassago. That does NOT mean I support the creator of my source. I also know the show is ass, lmfao
 
 <img width="900" height="560" alt="im soo hot right vassago gif" src="https://github.com/user-attachments/assets/d143d1b9-28c8-4c97-b988-4499e64a900b" />
-
-FLASH WARNING FOR THE GIF UNDER MY DNI! PROCEED WITH CAUTION PLEASE
 
 
 
@@ -12,7 +12,6 @@ Basic (Maga, Pro-life, Racist, Homo/Transphobic, Nazi/Neo-Nazi)
 
 Under 15, over 25. We are 17, bodily. Yes, 15-17 isn't a big difference, but it's a maturity thing, forgive me. This doesn't go for my headmates, I believe their DNI's are 13 and under, please don't let me scare you away from them!
 
-Pro/Dark shippers that aren't trying to change. If you're healing, feel free to interact, but please don't bring it up constantly, it does make me a bit uncomfortable. I do wish you luck on your journey, though. :)
 
 AI users, generative, whatever, idgaf if it's that forsaken 'EcoGPT' app, oh my lord users of that site piss me off. If you use those chatbots and are working on recovering, once again feel free to interact, but don't bring it up. I believe in you. :)
 
@@ -23,6 +22,8 @@ Specific people (By their GitHub names) :  snowyrescue (Coal) and her supporters
 IWEC and BYI
 
 All religions, honestly. Whether Christian, Muslim, Buddhist, whatever, we have real bad religious trauma. We're also not open about our beliefs, we will only bring it up if we're close. This goes for the system as a whole, we all share a mutual belief in one religion.
+
+I'm a bit iffy with pros/darks but honestly as long as you're not hurting anyone or yourself, shrug. You do you. If you're someone who's really loud and open about it please IWC but don't be scared to interact with me!
 
 Fellow Vassago kins. I fear my mental age is a bit too high to be irritated by 'doubles', but regardless please interact with care. I won't have it out for you or anything, it'll just be a bit awkward 
 
