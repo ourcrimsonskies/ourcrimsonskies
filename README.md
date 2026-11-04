@@ -56,4 +56,12 @@ All this info is here, because I might take a while to create my own strawpage.
 
 LOOKING FOR MY STOLAS!! <33 STOLAS KINNIES, FICTIVES, FICTKINS, WHATEVER, PLEASE INTERACT! <3
 
+<img width="1242" height="1068" alt="IMG_8607" src="https://github.com/user-attachments/assets/e19647f4-15dc-40e3-8d33-192057fe29b3" />
+
+⬆️ ppl just be finding reasons to be mad at me lmfaoo
+
+yeah I’m gonna find you Stolas and I’m gonna take you like a good boy.  yah im BEGGING for you guys to interact in fact im FORCING you to. If your a Stolas kin and you don’t interact with me I’m gonna hurl myself off a bridge actually, so soulvester explained it perfectly
+
+
+
 
